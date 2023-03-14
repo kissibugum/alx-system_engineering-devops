@@ -1,1 +1,1 @@
- What’s new
+ being perfect
